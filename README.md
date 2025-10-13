@@ -1,1 +1,1 @@
-# Summative-Mika
+# Summative
